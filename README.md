@@ -12,3 +12,4 @@
 4) Forth repositorie, excercise that I had study and practice.https://github.com/CanarioEchazu/Modulo1CS
 5) Fith repositorie, I had finishes and complete all the homework. https://github.com/CanarioEchazu/Modulo-I-
 6) Check Point 1 exam passed with 100% https://github.com/CanarioEchazu/CheckPointModulo1
+7) Homework from Modulo 2 https://github.com/CanarioEchazu/Modulo2-Master
