@@ -13,3 +13,4 @@
 5) Fith repositorie, I had finishes and complete all the homework. https://github.com/CanarioEchazu/Modulo-I-
 6) Check Point 1 exam passed with 100% https://github.com/CanarioEchazu/CheckPointModulo1
 7) Homework from Modulo 2 https://github.com/CanarioEchazu/Modulo2-Master
+8) ksaldfjlkfdj;sasd asdf a fafd sa https://www.youtube.com/watch?v=lSdg8rQd4Ms&lc=UgySVgQH08Sw-enss4x4AaABAg.9l4iJDAdJzg9lSIjoKV8If
